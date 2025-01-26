@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jayweseman
 - 👀 I’m interested in Graphic design + Web development
 - 🌱 I’m currently learning HTML + CCS
-- 📫 How to reach me Instragram (Sharkshenanigans)
+- 📫 How to reach me Instragram (BATDesign)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Im learning on my own
 
